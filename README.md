@@ -1,1 +1,0 @@
-# anatoli-derese.github.io
